@@ -1,0 +1,3 @@
+## Linterna Verde
+
+Linterna Verde es el nombre de varios superhéroes del universo de ficción de la editorial DC Comics, los cuales se caracterizan por portar un anillo de poder y una batería en forma de linterna que otorga al portador la capacidad de crear manifestaciones de luz verde sólida con ellos. Combaten el mal con estos anillos que los brindan una variedad de poderes extraordinarios, todos los cuales provienen de la imaginación, la intrepidez y el espectro electromagnético de la fuerza de voluntad emocional.1​ Los personajes son por lo general mostrados como miembros de los Green Lantern Corps, la organización policial intergaláctica a la pertenecen todos los Linternas Verdes.
